@@ -1,2 +1,1 @@
 Mňaukers
-dsvsydvbvxsdfbvhujl.ůíié=rgerzřuýuáplo
